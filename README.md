@@ -8,8 +8,10 @@ Here are some ideas to get you started:
 - 🌱 gosto de sair com minhas amigas
 - 👯 sou uma boa amiga
 - 🤔 gosto de gato
-- 💬 
-- 📫 
+- 💬 gost de comer
+- 📫  gosto de dormir
 - 😄 
 - ⚡ 
 -->
+  ![](https://media.tenor.com/v7pIpaAmTjUAAAAd/olddance.gif)
+  
